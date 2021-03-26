@@ -6,7 +6,7 @@
 ## Activity
 + Absoultely Nothing < 아니 너 나이가 몇인데?! >
   + Finish Army < 하나는 했구나 너 >
-    + Sejong Artificial Intelligence <2021 ~ >
+    + Sejong Artificial Intelligence <2021 ~ > As a member.
 
 ## Interest
 - 반도체 < Memory or non - memory >
